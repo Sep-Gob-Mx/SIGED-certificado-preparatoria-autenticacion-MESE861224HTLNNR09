@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MESE861224HTLNNR09
+MESE861224HTLNNR09
